@@ -18,10 +18,6 @@
 
 ## Professional Summary
 
-Absolutely — here’s a stronger version that sounds confident without overstating your experience:
-
-Writing
-Professional Summary
 
 Driven and detail-oriented aspiring IT professional currently pursuing technical training through MyComputerCareer. Building a strong foundation in computer hardware, networking, troubleshooting, cybersecurity, and technical support. Known for being dependable, adaptable, and eager to learn new technologies and solve technical problems. Seeking an entry-level IT opportunity to apply developing technical skills, gain hands-on experience, and grow within the technology
 
